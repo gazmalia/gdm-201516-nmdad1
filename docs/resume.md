@@ -25,5 +25,5 @@ Softwarekennis
 -Adobe after effects  
 
 
-Contactinformatie
-gazmalia@student.arteveldehs.be
+Contactinformatie  
+gazmalia@student.arteveldehs.be  
